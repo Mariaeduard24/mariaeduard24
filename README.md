@@ -14,3 +14,9 @@ Meu nome é Maria Eduarda
 
 
 https://tenor.com/pt-BR/view/cute-gif-angry-cat-gif-24033237
+
+### Gosto de fazer algumas coisas como:
+- Ouvir música
+- Dançar
+- Conversar
+- Fazer amizades 
